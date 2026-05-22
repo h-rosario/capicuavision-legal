@@ -1,0 +1,2 @@
+# capicuavision-legal
+Privacy Policy
